@@ -1,1 +1,0 @@
-# leaderboard-a-taste-of-five
